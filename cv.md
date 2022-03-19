@@ -6,7 +6,7 @@
 * **E-mail:** [v6087573@gmail.com](v6087573@gmail.com)
 * **GitHub:** [VDashkevich](https://github.com/VDashkevich)
 * **Telegram** [VDashkevich](https://t.me/tofosteryou)
-* **[Linkedin]**(https://www.linkedin.com/in/valentin-dashkevich-43674a127/)
+* [**Linkedin**](https://www.linkedin.com/in/valentin-dashkevich-43674a127/)
 
 ## Summary:
 
